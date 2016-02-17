@@ -1,2 +1,2 @@
 # imanNMike
-My favorite candy is Snickers
+My favorite candy is Milky Way

@@ -1,3 +1,3 @@
 # imanNMike
-My favorite candy when I'm super hungry is still GUSHERS.
+My favorite candy is always gushers.
 

@@ -1,2 +1,2 @@
 # imanNMike
-cuz im getting picked on literally 
+My favorite candy is Snickers

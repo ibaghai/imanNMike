@@ -1,3 +1,5 @@
 # imanNMike
-My second favorite candy is Reecee's' Pieces.
+
+My favorite candy when I'm super hungry is still GUSHERS.
+
 

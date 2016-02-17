@@ -1,3 +1,3 @@
 # imanNMike
-My favorite candy is GUSHERS.
+My second favorite candy is Reecee's' Pieces.
 
